@@ -21,7 +21,7 @@ This will reduce, or perhaps eliminate the need to accept cash payments, or carr
 
 This project will be totally and completely focused on the Mzansi landscape, and all of our Micro and small businesses. 
 
-The original name was supposed to have been named HayleysComet(Coin), but was just not working in most configurations etc etc. But nonetheless, this is dedicated to her, as a reminder that she will be awesome, in everything she does.  
+The original name was supposed to have been named HayleysComet(Coin),named after my daughter, but was just not working in most configurations etc etc. But nonetheless, this is dedicated to her, as a reminder to her that she will be awesome, in everything she does, ALWAYS! :)
 
 I can be reached directly at any of the below, at any time of the day, or night:
 
@@ -41,7 +41,7 @@ PS: Whitepaper and official site will be up soon as well. The only difference he
 No standard ICO, as in the sense of 0% pre-sale of any coin, for infrastructure here, or there. No "fund-raising" WHATSOEVER!
 This coin is is an ode to the "small" people. And is going exactly there:)
 
-
+--EDIT: Site/mining pool is up now @ cryptomaniax.co.za. 
 
 
 vision is the art of seeing the invisible
